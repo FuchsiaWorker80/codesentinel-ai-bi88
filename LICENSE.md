@@ -1,4 +1,4 @@
-# 
+# Turbo CodeSentinel kit de ferramentas. Baixe e instale com atualizações automáticas e instalação com um clique — rápido, seguro e fácil de usar.
 
 
 
